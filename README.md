@@ -1,5 +1,5 @@
 ### Official Chimera's Github
-[image](https://user-images.githubusercontent.com/73774043/116666331-1402d400-a9b0-11eb-8722-b53e066ab5db.png)
+[My Apps On App Store](https://i1.sndcdn.com/artworks-hEOBCMzK8YTYPz2Y-UBn09w-t500x500.jpg)
 
 <!--
 **Chimera32/chimera32** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
